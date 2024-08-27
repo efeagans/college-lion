@@ -1,3 +1,7 @@
+---
+
+[← Back to Main Page](README.md)
+
 # Lance's Hockey Journey: From Spirit to Sting
 
 ## The Early Years: Discovering the Ice
