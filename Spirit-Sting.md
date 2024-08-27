@@ -18,7 +18,7 @@ Club hockey teams play a significant role in a young player's development. These
 
 ## High School Hockey: A New Chapter
 
-For many young players, joining their high school team marks an important milestone. High school hockey combines the pride of representing one's school with the opportunity to play alongside classmates and friends. This experience often creates a special bond among teammates and can be a highlight of a player's youth hockey career.
+For many young players, joining their [high school](https://www.desmethockey.org.app.crossbar.org/) team marks an important milestone. High school hockey combines the pride of representing one's school with the opportunity to play alongside classmates and friends. This experience often creates a special bond among teammates and can be a highlight of a player's youth hockey career.
 
 ## The Impact of Youth Hockey
 
