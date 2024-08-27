@@ -26,7 +26,8 @@ Youth hockey is about more than just wins and losses. It teaches valuable life l
 
 ## Community and Family Involvement
 
-Youth hockey is a community effort, involving not just the players but also their families, coaches, and local supporters. Parents often become integral parts of the hockey community, volunteering their time, cheering from the stands, and forming lasting friendships with other hockey families.
+Youth hockey is a community effort, involving not just the players but also their [families]([image_0]: https://pfst.cf2.poecdn.net/base/image/a888ab28b1b5b13f420a2f6f613eb5bf9453cee403d46a7e0d22ea1dc4b1c3af?w=1024&h=768&pmaid=136837784
+![image][image_0]), coaches, and local supporters. Parents often become integral parts of the hockey community, volunteering their time, cheering from the stands, and forming lasting friendships with other hockey families.
 
 ## Looking to the Future
 
