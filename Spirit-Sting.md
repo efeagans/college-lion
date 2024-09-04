@@ -6,7 +6,7 @@
 
 ## The Early Years: Discovering the Ice
 
-Youth hockey is more than just a sport; it's a journey that shapes character, builds friendships, and creates lasting memories. For many young players, the adventure begins as early as age 5 or 6, when they first lace up their skates and step onto the ice. These early years are crucial, focusing on developing fundamental skills, fostering a love for the game, and learning the importance of teamwork.
+Lance's journey in this sport began when he was still in diapers and around the age of 3.  He would set up [Shinny Hockey](https://en.wikipedia.org/wiki/Shinny) as I sat to watch the St. Louis Blues play on television.  I believe the rabidness of my fandom to St. Louis Blues hockey definitely sparked his interest at a young age.  Around the age of five we sought out opportunities to get Lance on the ice, in skates, and really give hockey a try.  Through the [St. Peters Hockey Club](https://www.stpetershockey.com/) we discovered a program called "Learn to Play".  This turned out to be the spring board into his hockey pursuit.
 
 ## Growing with the Game
 
