@@ -6,7 +6,7 @@
 
 ## The Early Years: Discovering the Ice
 
-Lance's journey in this sport began when he was still in diapers and around the age of 3.  He would set up [Shinny Hockey](https://en.wikipedia.org/wiki/Shinny) as I sat to watch the St. Louis Blues play on television.  I believe the rabidness of my fandom to St. Louis Blues hockey definitely sparked his interest at a young age.  Around the age of five we sought out opportunities to get Lance on the ice, in skates, and really give hockey a try.  Through the [St. Peters Hockey Club](https://www.stpetershockey.com/) we discovered a program called "Learn to Play".  This turned out to be the spring board into his [hockey](https://github.com/efeagans/college-lion/blob/main/Little%20Lance.JPG) pursuit.
+Lance's journey in this sport began when he was still in diapers and around the age of 3.  He would set up [Shinny Hockey](https://en.wikipedia.org/wiki/Shinny) as I sat to watch the St. Louis Blues play on television.  I believe the rabidness of my fandom to St. Louis Blues hockey definitely sparked his interest at a young age.  Around the age of five we sought out opportunities to get Lance on the ice, in skates, and really give hockey a try.  Through the [St. Peters Hockey Club](https://www.stpetershockey.com/) we discovered a program called "Learn to Play".  This turned out to be the spring board into his [hockey](https://github.com/efeagans/college-lion/blob/main/Little%20Lance.JPG) (cool photograph, you should check it out!) pursuit.
 
 ## Growing with the Game
 
