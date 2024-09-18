@@ -18,6 +18,8 @@ Club hockey teams play a significant role in a young player's development. These
 
 Club hockey also provides Lance with an opportunity to compete for a spot on the [United States National Development Team](https://en.wikipedia.org/wiki/USA_Hockey_National_Team_Development_Program).  This is the team that competes for World Championships and Olympic medals under the colors of the United States of America.  The selection process for our area starts during a tournament called "Central Districts", which generally takes place at the Ice Zone in Hazelwood, MO.  Though the chances are slim to make a USA roster, this tournament is important as it is also heavily scouted for NCAA, AAA, and Junior Professional.  It provides Lance an opportunity to showcase in front of an audience he would not normally get, and hope to move on to the next level of NCAA hockey.  
 
+During the course of Lance's travels, he has been lucky enough to meet tons of current and past [NHL stars](https://www.canva.com/design/DAGRI-8z48U/HEThL8O8f6JvgOg_orx7VQ/view?utm_content=DAGRI-8z48U&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel).  Many of which have children playing the sport, and take time to coach and skate with the youth in the game.  This will be another portion of his youth sport that he tells his grandchildren about someday.
+
 ## High School Hockey: A New Chapter
 
 For many young players, joining their [high school](https://www.desmethockey.org.app.crossbar.org/) team marks an important milestone. High school hockey combines the pride of representing one's school with the opportunity to play alongside classmates and friends. This experience often creates a special bond among teammates and can be a highlight of a player's youth hockey career.
