@@ -30,7 +30,17 @@ Lance will start his first Varsity Season with DeSmet Jesuit High School hockey,
 
 ## The Impact of Youth Hockey
 
-Youth hockey is about more than just wins and losses. It teaches valuable life lessons such as perseverance, sportsmanship, and the value of hard work. Players learn to handle both success and disappointment, developing resilience that serves them well beyond their years on the ice.
+Youth hockey is about more than just wins and losses. Playing team sports as a youth offers far more than just physical fitness and competition—it also instills crucial life skills that help individuals become better members of society as adults. Through teamwork, discipline, and leadership, young athletes learn values that translate into positive contributions to their communities.
+
+One of the primary benefits of team sports is learning how to work collaboratively. Athletes must communicate effectively, resolve conflicts, and support one another to achieve a common goal. These skills are invaluable in adult life, where cooperation and collaboration are essential in both personal and professional relationships.
+
+Discipline is another key lesson. Athletes are required to manage their time, set goals, and follow through on commitments like practice schedules and game preparations. This level of dedication helps build a strong work ethic, preparing individuals to tackle challenges in the workplace and other areas of life.
+
+Leadership and accountability are also fostered through team sports. Players often rotate leadership roles, such as being the captain or simply motivating teammates during tough moments. Learning to lead and take responsibility for one's actions—whether it's accepting a win or dealing with a loss—builds character and resilience. These traits translate into the ability to lead and take accountability in adult roles.
+
+Lastly, participating in team sports exposes young people to diversity, teaching them to respect and work with individuals from various backgrounds. This understanding of inclusivity and empathy is essential for functioning in a diverse society, as it encourages individuals to appreciate different perspectives and contribute to the well-being of others.
+
+In essence, team sports serve as a microcosm of society, teaching youth how to navigate social dynamics, lead with integrity, and contribute to the success of the group. These foundational experiences help shape responsible, empathetic, and driven adults who are equipped to make meaningful contributions to society.
 
 ## Community and Family Involvement
 
