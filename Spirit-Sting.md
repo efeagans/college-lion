@@ -32,7 +32,7 @@ Lance will start his first Varsity Season with DeSmet Jesuit High School hockey,
 
 Youth hockey is about more than just wins and losses. Playing team sports as a youth offers far more than just physical fitness and competition—it also instills crucial life skills that help individuals become better members of society as adults. Through teamwork, discipline, and leadership, young athletes learn values that translate into positive contributions to their communities.
 
-One of the primary benefits of team sports is learning how to work collaboratively. Athletes must communicate effectively, resolve conflicts, and support one another to achieve a common goal. These skills are invaluable in adult life, where cooperation and collaboration are essential in both personal and professional relationships.
+One of the primary benefits of team sports is learning how to work [collaboratively](https://github.com/efeagans/college-lion/blob/main/Different%20Schools.jpg). Athletes must communicate effectively, resolve conflicts, and support one another to achieve a common goal. These skills are invaluable in adult life, where cooperation and collaboration are essential in both personal and professional relationships.
 
 Discipline is another key lesson. [Athletes](https://github.com/efeagans/college-lion/blob/main/Bonding.jpg) are required to manage their time, set goals, and follow through on commitments like practice schedules and game preparations. This level of dedication helps build a strong work ethic, preparing individuals to tackle challenges in the workplace and other areas of life.
 
