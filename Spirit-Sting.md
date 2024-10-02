@@ -40,7 +40,7 @@ Leadership and accountability are also [fostered](https://github.com/efeagans/co
 
 Lastly, participating in team sports exposes young people to diversity, teaching them to respect and work with individuals from various backgrounds. This understanding of inclusivity and empathy is essential for functioning in a diverse society, as it encourages individuals to appreciate different perspectives and contribute to the well-being of others.
 
-In essence, team sports serve as a microcosm of society, teaching youth how to navigate social dynamics, lead with integrity, and contribute to the success of the group. These foundational experiences help shape responsible, empathetic, and driven adults who are equipped to make meaningful contributions to society.
+In essence, team sports serve as a microcosm of society, teaching youth how to navigate social dynamics, lead with [integrity](https://github.com/efeagans/college-lion/blob/main/Community%20(2).JPG), and contribute to the success of the group. These foundational experiences help shape responsible, empathetic, and driven adults who are equipped to make meaningful contributions to society.
 
 ## Community and Family Involvement
 
