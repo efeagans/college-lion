@@ -30,7 +30,7 @@ Lance will start his first Varsity Season with DeSmet Jesuit High School hockey,
 
 ## The Impact of Youth Hockey
 
-Youth hockey is about more than just wins and losses. Playing team sports as a youth offers far more than just physical fitness and competition—it also instills crucial life skills that help individuals become better members of society as adults. Through teamwork, discipline, and leadership, young athletes learn values that translate into positive contributions to their communities.
+Youth hockey is about more than just wins and losses. Playing team sports as a youth offers far more than just physical fitness and competition—it also instills crucial life skills that help individuals become better members of society as adults. Through teamwork, discipline, and leadership, young athletes learn values that translate into positive contributions to their [communities](https://github.com/efeagans/college-lion/blob/main/Supporting%20Teammates.JPG).
 
 One of the primary benefits of team sports is learning how to work [collaboratively](https://github.com/efeagans/college-lion/blob/main/Different%20Schools.jpg). Athletes must communicate effectively, resolve conflicts, and support one another to achieve a common goal. These skills are invaluable in adult life, where cooperation and collaboration are essential in both personal and professional relationships.
 
