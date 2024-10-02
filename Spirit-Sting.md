@@ -36,7 +36,7 @@ One of the primary benefits of team sports is learning how to work collaborative
 
 Discipline is another key lesson. [Athletes](https://github.com/efeagans/college-lion/blob/main/Bonding.jpg) are required to manage their time, set goals, and follow through on commitments like practice schedules and game preparations. This level of dedication helps build a strong work ethic, preparing individuals to tackle challenges in the workplace and other areas of life.
 
-Leadership and accountability are also fostered through team sports. Players often rotate leadership roles, such as being the captain or simply motivating teammates during tough moments. Learning to lead and take responsibility for one's actions—whether it's accepting a win or dealing with a loss—builds character and resilience. These traits translate into the ability to lead and take accountability in adult roles.
+Leadership and accountability are also fostered through team sports. Players often rotate leadership roles, such as being the captain or simply motivating teammates during tough moments. Learning to lead and take responsibility for one's actions—whether it's accepting a win or dealing with a loss—builds [character](https://github.com/efeagans/college-lion/blob/main/Community.jpg) and resilience. These traits translate into the ability to lead and take accountability in adult roles.
 
 Lastly, participating in team sports exposes young people to diversity, teaching them to respect and work with individuals from various backgrounds. This understanding of inclusivity and empathy is essential for functioning in a diverse society, as it encourages individuals to appreciate different perspectives and contribute to the well-being of others.
 
