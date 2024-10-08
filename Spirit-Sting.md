@@ -52,4 +52,4 @@ Due to hockey giving us so much through the years, Lance and I give back to the 
 
 ## Looking to the Future
 
-As young players progress through their youth hockey years, they not only develop as athletes but also as individuals. Whether their future includes college hockey, professional aspirations, or simply a lifelong love for the sport, the experiences gained through youth hockey provide a strong foundation for whatever path they choose to follow.
+As young players progress through their youth hockey years, they not only develop as athletes but also as individuals. Whether their future includes college hockey, professional aspirations, or simply a lifelong love for the sport, the experiences gained through youth hockey provide a strong foundation for whatever path they choose to follow.  Youth sports are paramount in developing boys who play sports into men who are successful in a team, and contributors in their fields.
