@@ -46,6 +46,8 @@ In essence, team sports serve as a microcosm of society, teaching youth how to n
 
 Youth hockey is a community effort, involving not just the players but also their [families](https://poe.com/chat/3jmluzn5k3glkbjshvn), coaches, and local supporters. Parents often become integral parts of the hockey community, volunteering their time, cheering from the stands, and forming lasting friendships with other hockey families.
 
+Lance's journey was not only his journey through hockey, but it was also my wife and my journey.  Over the years we have met some of our now closest friends through the game.  
+
 ## Looking to the Future
 
 As young players progress through their youth hockey years, they not only develop as athletes but also as individuals. Whether their future includes college hockey, professional aspirations, or simply a lifelong love for the sport, the experiences gained through youth hockey provide a strong foundation for whatever path they choose to follow.
